@@ -1,2 +1,2 @@
 # BRUVH-QUOPHY-CYBER-UNITECHS
-Providing you all with computer, repairs, coding, unlocking, websites,and programing
+Providing you all with computer cyber securities, repairs, coding, unlocking, websites,and programing
